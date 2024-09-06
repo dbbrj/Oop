@@ -1,4 +1,4 @@
-# Min Øvelser
+# Mine Øvelser
 
 Nyttige Links:
 
